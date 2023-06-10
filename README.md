@@ -10,6 +10,14 @@ Chiselwall主要应用领域为跨境电子商务、TikTok自媒体跨境服务�
 
 Chiselwall的中文意思就是“凿墙”，很明显，Chiselwall是一个“凿开墙壁”的服务，让你能够打通互联网的全境访问通道。
 
+## Chiselwall优惠码
+
+618五折折闪购优惠
+
+所有套餐5折！优惠码：618
+
+有效期至6月18日。年付以上套餐更可以享受折上折！
+
 ## 特色
 
 * 解锁支持ChatGPT/Netfilx/Hulu/Hbo/Disney+/Dazn
