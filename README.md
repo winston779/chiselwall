@@ -1,6 +1,6 @@
 # Chiselwall机场官网地址
 
-最新地址：[chisel.run](https://chisel.run/#/register?code=mDmVWzfm)
+最新地址：[chisel.run](https://chisel.best/#/register?code=mDmVWzfm)
 
 ## 简介
 
